@@ -66,7 +66,7 @@ Nos repositórios deste perfil é possível encontrar projetos que contemplam fu
 
 ## Contato
 
-* LinkedIn: [www.linkedin.com/in/josé-pedro-eremita-filho](www.linkedin.com/in/josé-pedro-eremita-filho)
+* LinkedIn: [www.linkedin.com/in/josepedro1](www.linkedin.com/in/josepedro1)
 * E-mail: [jeremitafilho@gmail.com](jeremitafilho@gmail.com)
 * GitHub: [https://github.com/JosePedro1](https://github.com/JosePedro1)
 
